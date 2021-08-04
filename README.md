@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RafaelViniciusGarcia
-- 👀 I’m interested in  conquistar uma vaga nomercado de trabalho.
+- 👀 I’m interested in work.
 - 🌱 I’m currently learning  Python3
 - 💞️ I’m looking to collaborate on  com recrutadores para entender meus trabalhos
 - 📫 Meu LinkedIn é  https://www.linkedin.com/in/rafaelviniciusgarcia-621338186/
